@@ -14,5 +14,3 @@ First Citizen: You are all resolved rather to die than to famish?
 
 Savita: I am the last of the 24 more out there from Thoera. I have got this control board next defeat and my mercy is over temporarily, and I will find old connections that I did not die to but you may wait to see how old there is till you storm from this place.
 
-
-[![Watch the video](https://raw.githubusercontent.com/yourusername/yourrepository/main/path/to/thumbnail.jpg)](https://www.loom.com/share/d584a8d586b746c1af8bc4296b21da4d)
